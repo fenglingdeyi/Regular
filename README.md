@@ -1,3 +1,1 @@
-# Regular-
-# Regular
 # Regular
